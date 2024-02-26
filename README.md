@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @smriti987
+- 👋 Hi, I’m smriti chauhan
 
 - 📫 How to reach to me it's easy dm on kajaldamak82@gmail.com...
 
