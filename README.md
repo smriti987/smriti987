@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @smriti987
-- 👀 I’m interested in UI UX and web ...
-- 🌱 I’m currently learning web..
-- 💞️ I’m looking to collaborate on content creator.
+
 - 📫 How to reach to me it's easy dm on kajaldamak82@gmail.com...
 
 <!---
